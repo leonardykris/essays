@@ -1,0 +1,15 @@
+# Sara P.
+
+## Bands of Experience
+
+The fabric that consitutes my life is a fusion of multitudinous hues and textures, shut away in a box under my bed only to be retrieved in preparation for each day. My personality is best conveyed through these minute fragments of my existence, manifested in a headband collection.
+
+I have been accumulating decorative headgear for over a decade, and have built an assortment nearly three hundred strong. The array includes massive, miniscule, plastic, and cloth, with a span of colors far exceeding the range of a rainbow. Such variation exists because each headband encapsulates my identity on a given day. Thus, the story of my life is unearthed every morning when I unfasten this uncanny box of memories.
+
+Today, in the midst of burrowing for the perfect topper to my tresses, I encounter the glossy white headband that was once a versatile staple of my adolescent wardrobe. As I caress its smooth ivory surface, I instantaneously feel the fleeting freedom of childhood I once experienced as it cradled my cranium. The girl who wore this accessory was boundlessly charismatic and endlessly expressive, an intrinsic actress lacking the proper stage. I was but a young teenager unable to afford drama camp or acting lessons, dreaming of one day shining in the spotlight.
+
+Amid my reminiscing I come across a soft burgundy headband perfectly matching my corresponding uniform polo, which I donned on the intended date of my inaugural high school play audition. Although in my eager anticipation I felt my act was as coordinated as my outfit, my sophomoric self was in for a shock. Laryngitis paralyzed my voice that fateful morning, and I had to hoarsely mouth an explanation to the drama director in disappointment. Generously, he gave me a small part regardless because he knew of my unremitting work ethic. Determined to grasp that chance by exceeding his expectations for excellence, I invested my entire emotional energy into a comedic improvisational exercise at my first practice. After a short bout of speechlessness, the drama club burst into an amalgamation of applause and laughter. Finally, my routine began to emerge from behind the curtain.
+
+Soon the faint shimmering of glitter jolts my musing forward as I recall the evening I displayed a certain purple headband as a costume component. It augmented my guise as the Enchantress, the first three roles I played in Beauty and the Beast. Over a year had passed since my ill-fated audition, and at last all eyes focused as me as I opened the show with a brief self-choreographed routine. I basked in the exhilarating joy of acting, enhanced by my renewed understanding of the immense resolve required to seize the stage. My headbands accompanied me through the entire journey, and thus they are of great personal value.
+
+It seems peculiar that the most precious artifacts I possess sell for approximately $1 each. Yet these bands are my treasure, as they hold my past experiences while stretching to encompass the performances held in my future.
